@@ -1,1 +1,1 @@
-# -Leadership-as-staff-responsible-learning-journey
+# Leadership-as-staff-responsible-learning-journey
